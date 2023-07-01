@@ -1,5 +1,7 @@
 # Brazhkina Anastasia
 
+![Photo](IMG_6858.png)
+
 ## Contacts for contact
 **Discord:** @nas_tya
 
